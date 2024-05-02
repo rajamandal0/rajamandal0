@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @rajamandal0
+- 👀 I’m interested in Engineering
+- 🌱 I’m currently learning Javascript
+- 💞️ I’m looking to collaborate on uhm anything??
+- 📫 How to reach me on rajamandal01758@gmail.com
+- 😄 Pronouns: He/Him
